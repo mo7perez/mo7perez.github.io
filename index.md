@@ -1,3 +1,3 @@
 # My Trip to Kumamoto
 
-!{Exciting}(kanban-kumamoto.JPG)
+!{Exciting}(https://github.com/mo7perez/mo7perez.github.io/blob/master/kanban-kumamoto.JPG)
