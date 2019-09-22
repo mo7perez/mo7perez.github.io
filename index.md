@@ -1,1 +1,3 @@
-# this is my homepage
+# My Trip to Kumamoto
+
+!{Exciting}(kanban-kumamoto.JPG)
