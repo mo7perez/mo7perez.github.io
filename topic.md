@@ -23,3 +23,9 @@ On our way to the destination, we decided to take a break at one of the rest sto
 
 After exploring and visiting Mt. Aso, we went straight ahead to our next stop, the Takachiho Gorge. It was a beautiful place suitable for family and couples as well. At this location, you can enjoy canoeing and explore the beauty of the lake up close to the falls. Mother nature at its finest!
 
+![](waterfallpic1.JPG)
+
+![](waterfallpic2.JPG)
+
+![](mewaterfall.JPG)
+
