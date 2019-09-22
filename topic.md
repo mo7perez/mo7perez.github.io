@@ -29,8 +29,6 @@ After exploring and visiting Mt. Aso, we went straight ahead to our next stop, t
 
 ![](mewaterfall.JPG)
 
-![](applewaterfall.jpg)
-
 -----------------------------------------
 
 [RETURN](bio.md)
