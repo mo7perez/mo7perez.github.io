@@ -7,6 +7,10 @@ Source: https://kumamoto.guide/en/about/
 -------------------------------------------
 ![](kanban-kumamoto.JPG)
 
-#### Break Time
+#### Enjoy!
 -------------------------------------------
 On our way to the destination, we decided to take a break at one of the rest stops, and this is what welcomed us. An over looking view of the rice fields and the mountains. What a picture-perfect moment!
+![](volcano-apple.JPG "Baby Apple Looking Sexy")
+-------------------------------------------
+
+After the long drive, we finally reached our first stop; the famous Mt. Aso. It was a great experience being at the top of an active volcano — an experience I'll never forget.
