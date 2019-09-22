@@ -6,7 +6,7 @@ I've been living in Japan for ten years now. I already know their language and f
 
 ![ME](appleandme.JPG "Apple and Maurice")
 ----------------------------------------------------------
-Click on the volcano to enjoy the breath taken views of Kumamoto [&#127755;](topic.md)
+Click on the volcano to enjoy the breath taking views of Kumamoto [&#127755;](topic.md)
 
 ----------------------------------------------------------
 
