@@ -15,3 +15,6 @@ On our way to the destination, we decided to take a break at one of the rest sto
 -------------------------------------------
 
 After the long drive, we finally reached our first stop; the famous Mt. Aso. It was a great experience being at the top of an active volcano — an experience I'll never forget.
+
+![](top-pic1.JPG)
+1[](top-pic2.JPG)
