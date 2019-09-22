@@ -7,9 +7,10 @@ Source: https://kumamoto.guide/en/about/
 -------------------------------------------
 ![](kanban-kumamoto.JPG)
 
-#### Enjoy!
+### Enjoy!
 -------------------------------------------
 On our way to the destination, we decided to take a break at one of the rest stops, and this is what welcomed us. An over looking view of the rice fields and the mountains. What a picture-perfect moment!
+
 ![](volcano-apple.JPG "Baby Apple Looking Sexy")
 -------------------------------------------
 
