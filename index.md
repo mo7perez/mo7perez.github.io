@@ -1,3 +1,3 @@
 # My Trip to Kumamoto
 
-! {Exciting} (kanban-kumamoto.JPG)
+!{Exciting}(kanban-kumamoto.JPG)
